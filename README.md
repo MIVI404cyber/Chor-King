@@ -1,2 +1,2 @@
 # Chor-King
-Chor Rr Mare Xudi
+Chor er Mare Xudi
